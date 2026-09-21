@@ -1,0 +1,1 @@
+# pixel_8_pro_china_sim
